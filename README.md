@@ -1,1 +1,1 @@
-You can use thsi clacultor to do your normal claculation
+You can use thsi calcultor to do your normal calculation
